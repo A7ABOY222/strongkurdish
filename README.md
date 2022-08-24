@@ -1,0 +1,2 @@
+# strongkurdish
+Strongkurdish
